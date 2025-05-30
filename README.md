@@ -23,7 +23,7 @@
 >
 > This man turns out to be much worse than you thought—he actively promotes harmful behaviour involving minors.
 >
-> And I'm not just picking through his content looking for dirt; The evidence is everywhere.
+> And I'm not just picking through his content looking for dirt; the evidence is everywhere.
 >
 > On his main page, barely half a second of scrolling revealed this:
 >
@@ -39,7 +39,7 @@
 >
 > According to Hacker News users:
 >
-> > OTOH this guy claims to have "non-sexual" pictures of n\*\*\*d children on his website. Damned if I'm going to click through to see if his idea of non-sexual is the same as mine. Someone advocating\*\*\*\*philia while collecting pictures of n\*\*\*d children is beyond the pale. That's acting on it. I cannot and will not tolerate, let alone accept, that action.
+> > OTOH this guy claims to have "non-sexual" pictures of n\*\*\*d children on his website. Damned if I'm going to click through to see if his idea of non-sexual is the same as mine. Someone advocating \*\*\*\*philia while collecting pictures of n\*\*\*d children is beyond the pale. That's acting on it. I cannot and will not tolerate, let alone accept, that action.
 >
 > > This is from his homepage. This dude is weird af. Certainly gives off some p\*\*\* incel vibes.
 >
